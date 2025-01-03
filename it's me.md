@@ -1,7 +1,6 @@
 i am hyoominoidentity, also known as slime fur, or hyoom
 
-unfortunately, a furry
-gay and a femboy, un surprisingly i take it
+a gay furry femboy, unsurprisingly i take it
 
 i happen to yield common sense, and if you're genuinely asking me questions, pleas use your common sense
 
